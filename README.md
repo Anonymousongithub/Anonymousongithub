@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Anonymousongithub
+- 👀 I’m interested in learning ethical hacking
+- 🌱 I’m currently learning how to use google search hacks
+- 💞️ I’m looking to collaborate on hacks for some games maybe idk
